@@ -8,8 +8,7 @@
 
 - 👨‍💻 I’m currently learning *at Open University of Sri Lanka*
 
-- 📝 I regularly write articles on [https://nushambegum.blogspot.com/](https://nushambegum.blogspot.com/)
-
+- 📝 I regularly write articles on (https://rifkee29.blogspot.com/)
 - 📫 How to reach me *rifkee29@gmail.com*
 
 - 📄 Know about me at [www.linkedin.com/in/mohamed-rifkee-114245222)
