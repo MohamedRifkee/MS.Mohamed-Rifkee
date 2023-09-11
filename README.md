@@ -14,8 +14,8 @@
 
 - 📄 Know about me at [www.linkedin.com/in/mohamed-rifkee-114245222)
 
-- ⚡ Fun fact *Iam Not Game...
-                 Iam the Palyer*
+- ⚡ Fun fact *I'm Not a Game...
+                 I'm the Palyer*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
