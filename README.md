@@ -9,7 +9,7 @@
 - 👨‍💻 I’m currently learning *at Open University of Sri Lanka*
 
 - 📝 I regularly write articles on (https://rifkee29.blogspot.com/)
-- 📫 How to reach me *rifkee29@gmail.com*
+- 📫 How to reach me *rifkee29@gmail.com* *s92060531@ousl.lk* 
 
 - 📄 Know about me at [www.linkedin.com/in/mohamed-rifkee-114245222)
 
