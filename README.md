@@ -9,11 +9,13 @@
 - 👨‍💻 I’m currently learning *at Open University of Sri Lanka*
 
 - 📝 I regularly write articles on (https://rifkee29.blogspot.com/)
-- 📫 How to reach me *rifkee29@gmail.com* *s92060531@ousl.lk* 
+- 📫 How to reach me *rifkee29@gmail.com*
+                      *s92060531@ousl.lk* 
 
 - 📄 Know about me at [www.linkedin.com/in/mohamed-rifkee-114245222)
 
-- ⚡ Fun fact *I think I'm Funny*
+- ⚡ Fun fact *Iam Not Game...
+                 Iam the Palyer*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
